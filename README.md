@@ -23,4 +23,4 @@ https://lotusrose.substack.com
 ***
 
 
-(Don’t call me a sellout. Call me a realist, and a grrrl who needs to eat.)
+(Don’t call me a sellout. Call me a realist, and a grrrrl who needs to eat.)
